@@ -8,4 +8,4 @@ My name is **Samuel** and I love computers! In this profile you can find whateve
 
 If for any reason you want to contact me, you can reach me sending an e-mail to **bdzsamuel@gmail.com**.
 
-I'm in **[twitter](https://twitter.com/sbbddz)** too!
+I'm on **[twitter](https://twitter.com/sbbddz)** too!
